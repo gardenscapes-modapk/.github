@@ -1,4 +1,4 @@
-# Download Gardenscapes Mod APK Unlimited Start Free For Android Latest Version 2025
+# Download Gardenscapes Mod APK Unlimited Stars Free For Android Latest Version 2025
 
 ## What is Gardenscapes Mod APK?
 
